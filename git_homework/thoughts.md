@@ -6,4 +6,7 @@ strategies
 2. Reviewing content weekly
 
 Shoutout
-Thanks GG for all your help and encouragement these last view weeks! I appreciate you taking the time to zoom with me when I was freaking out. 
+Thanks GG for all your help and encouragement these last view weeks! I appreciate you taking the time to zoom with me when I was freaking out.
+
+
+Hmmm... more thoughts ... so smart...
